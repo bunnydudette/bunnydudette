@@ -1,1 +1,1 @@
-i hit kids with my ice cream truck
+i hate bill gates
